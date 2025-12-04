@@ -10,7 +10,9 @@
 
 ### [APERTURA - 15 segundos]
 
-Hoy he venido con la convicción de que todos aquí se den cuenta de algo que cambió mi vida:
+¿De qué eres cómplice hoy sin saberlo?
+
+Hoy quiero que todos salgamos de aquí con dos pensamientos:
 
 **Nuestras vidas no son privadas. Y el no decidir... también es decidir.**
 
